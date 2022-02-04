@@ -1,4 +1,4 @@
 # Tayná de Oliveira!
-## Front-end / Web Designer 👩‍💻
-###Habilidades
+### Front-end / Web Designer 👩‍💻
+### Habilidades
 
